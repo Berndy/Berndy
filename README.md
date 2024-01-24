@@ -1,1 +1,1 @@
-![](./profile-night-green_01_2024.svg)
+![](./profile-night-view_01_2024.svg)
